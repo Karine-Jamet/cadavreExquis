@@ -1,1 +1,1 @@
-multicolore et extravagante 
+Le Marsupilami multicolore et extravagant
